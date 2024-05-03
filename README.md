@@ -5,8 +5,19 @@ Ciao
 
 - Vince Was Here
 - Marco Rogic'
-- Mirkanius
+-Mirko sparati (scheeerzo, ciao sono andrea) <--- Da denunciare                         
+- Mirkanius, The Ruthless
 - Ciao, sono Francesco Iuorio
 - Filippo was here too...
-- Francesco Iuorio è ancora qui
--Mirko sparati (scheeerzo, ciao sono andrea) <--- Da denunciare                         
+![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
+- Daniele Demichelis
+- Francesco Iuorio è ancora qui                          
+- Mirko La Rocca
+- Andrea Bianchini
+- Mirko La Rocca
+- Ancora?
+- Sì, Mirko La Rocca (sono Mirko, sto usando il computer di Andrea)
+- Ah ok
+Andrea in questione:
+
+![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
