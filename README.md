@@ -16,6 +16,6 @@ Ciao
 
 
 
--Mirko sparati (scheeerzo, ciao sono andrea) <--- Da denunciare
+-Mirko sparati (scheeerzo, ciao sono andrea bianchini) <--- Da denunciare
                                 
 ![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
