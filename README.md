@@ -3,8 +3,6 @@ repo per capire git
 
 Ciao
 
-
-
 - Vince Was Here
 - Mirkanius, The Ruthless
 - Ciao, sono Francesco Iuorio
@@ -12,5 +10,9 @@ Ciao
 ![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
 - Daniele Demichelis
 - Francesco Iuorio è ancora qui                          
-- Andrea sparati (scheeerzo, ciao sono mirko la rocca) <--- Da denunciare
-                               
+- Mirko La Rocca
+- Andrea Bianchini
+- Mirko La Rocca
+- Ancora?
+- Sì, Mirko La Rocca (sono Mirko, sto usando il computer di Andrea)
+- Ah ok
