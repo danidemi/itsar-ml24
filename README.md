@@ -3,9 +3,7 @@ repo per capire git
 
 Ciao
 
-<p align="center">
-  <img src="https://i.ytimg.com/vi/2AJ3feqTn1w/maxresdefault.jpg" alt="Prendi L">
-</p>
+
 
 - Vince Was Here
 - Mirkanius, The Ruthless
