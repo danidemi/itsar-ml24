@@ -18,4 +18,4 @@ Ciao
 
 -Mirko sparati (scheeerzo, ciao sono andrea) <--- Da denunciare
                                 
-![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
+![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
