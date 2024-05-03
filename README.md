@@ -5,7 +5,7 @@ Ciao
 
 - Vince Was Here
 - Mirkanius, The Ruthless
-Ciao, sono Francesco Iuorio sds
+- Ciao, sono Francesco Iuorio
 - Filippo was here too...
 ![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
 - Francesco Iuorio è ancora qui
