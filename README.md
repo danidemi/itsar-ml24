@@ -16,5 +16,3 @@ Ciao
 - Francesco Iuorio è ancora qui                          
 - Andrea sparati (scheeerzo, ciao sono mirko la rocca) <--- Da denunciare
                                
-![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
-
