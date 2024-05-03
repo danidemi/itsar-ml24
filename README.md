@@ -5,7 +5,7 @@ Ciao
 
 - Vince Was Here
 - Mirkanius
--Ciao, sono Francesco Iuorio
+- Ciao, sono Francesco Iuorio
 - Filippo was here too...
 ![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
 - Francesco Iuorio è ancora qui
