@@ -8,7 +8,7 @@ Ciao
 - Ciao, sono Francesco Iuorio
 - Filippo was here too...
 ![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
-Daniele Demichelis
+- Daniele Demichelis
 - Francesco Iuorio è ancora qui                          
 - Mirko sparati (scheeerzo, ciao sono andrea bianchini) <--- Da denunciare
                                
