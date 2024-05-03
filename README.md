@@ -16,3 +16,14 @@ Ciao
 - Ancora?
 - Sì, Mirko La Rocca (sono Mirko, sto usando il computer di Andrea)
 - Ah ok
+fpdokgpodg
+fd
+fh
+g
+hf
+hg
+h
+fhf
+h
+fg
+h
