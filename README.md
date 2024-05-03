@@ -4,7 +4,7 @@ repo per capire git
 Ciao
 
 - Vince Was Here
-- Mirkanius
+- Mirkanius, The Ruthless
 - Ciao, sono Francesco Iuorio
 - Filippo was here too...
 - AAAAAAAaaaaaaa -Nicolò Calcagno
@@ -17,6 +17,6 @@ Ciao
 
 
 
--Mirko sparati (scheeerzo, ciao sono andrea) <--- Da denunciare
+-Mirko sparati (scheeerzo, ciao sono andrea bianchini) <--- Da denunciare
                                 
-![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
+![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
