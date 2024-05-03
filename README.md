@@ -13,6 +13,7 @@ Ciao
 - Daniele Demichelis
 - Francesco Iuorio è ancora qui                          
 - Andrea sparati (scheeerzo, ciao sono via quarenghi) <--- Da denunciare
+- v per vincenzo
                                
 Scusa Andrea, niente commit
 Andrea in questione:
