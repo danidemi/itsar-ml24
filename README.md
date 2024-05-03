@@ -14,7 +14,7 @@ Ciao
 ![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
 - Daniele Demichelis
 - Francesco Iuorio è ancora qui                          
-- Andrea sparati (scheeerzo, ciao sono mirko la rocca) <--- Da denunciare
+- Andrea sparati (scheeerzo, ciao sono via quarenghi) <--- Da denunciare
                                
 ![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
 
