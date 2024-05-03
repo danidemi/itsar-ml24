@@ -4,4 +4,3 @@ repo per capire git
 Ciao
 
 - Vince Was Here
-- Mirkanius
