@@ -7,3 +7,11 @@ Ciao
 - Mirkanius
 Ciao, sono Francesco Iuorio sds
 - Filippo was here too...
+
+
+
+
+
+
+
+-Mirko sparati (scheeerzo, ciao sono andrea)... .. . . . 
