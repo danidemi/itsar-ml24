@@ -12,12 +12,15 @@ Ciao
 ![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
 - Daniele Demichelis
 - Francesco Iuorio è ancora qui                          
+- Andrea sparati (scheeerzo, ciao sono via quarenghi) <--- Da denunciare
+                               
+Scusa Andrea, niente commit
+Andrea in questione:
 - Mirko La Rocca
 - Andrea Bianchini
 - Mirko La Rocca
 - Ancora?
 - Sì, Mirko La Rocca (sono Mirko, sto usando il computer di Andrea)
 - Ah ok
-Andrea in questione:
 
 ![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
