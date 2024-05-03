@@ -16,14 +16,6 @@ Ciao
 - Ancora?
 - Sì, Mirko La Rocca (sono Mirko, sto usando il computer di Andrea)
 - Ah ok
-fpdokgpodg
-fd
-fh
-g
-hf
-hg
-h
-fhf
-h
-fg
-h
+Andrea in questione:
+
+![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
