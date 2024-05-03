@@ -10,7 +10,7 @@ Ciao
 ![alt text](https://media.tenor.com/wMkBoSvYIh0AAAAj/pog-poggers.gif)
 Daniele Demichelis
 - Francesco Iuorio è ancora qui                          
--Mirko sparati (scheeerzo, ciao sono andrea bianchini) <--- Da denunciare
+- Mirko sparati (scheeerzo, ciao sono andrea bianchini) <--- Da denunciare
                                
 ![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
 
