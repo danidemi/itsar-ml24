@@ -15,3 +15,6 @@ Ciao
 - Andrea sparati (scheeerzo, ciao sono via quarenghi) <--- Da denunciare
                                
 Scusa Andrea, niente commit
+Andrea in questione:
+
+![alt text](https://media.tenor.com/FMJCWGaIwT0AAAAM/cat-thumbs-up.gif)
